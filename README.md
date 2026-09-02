@@ -1,2 +1,2 @@
-# Skskysjs
-Christian valentino Sahanaya, Velerisius begu purab
+# Tian, Begu 
+Bersepeda, Futsal, Pelajar, Suka main, SMP 
